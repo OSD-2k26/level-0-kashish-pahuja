@@ -1,6 +1,6 @@
 # Level 0 
 
-Before the journey begins,  
+Eefore the journey begins,  
 prove you can leave a mark.
 
 Change **anything** in this scroll.  
